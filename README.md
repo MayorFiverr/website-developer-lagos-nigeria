@@ -68,7 +68,7 @@ If you're looking for a **professional website developer in Lagos**, you can exp
 👉 https://websitedeveloper.tech
 
 You can also read a quick introduction to our approach on Medium:
-👉 [https://medium.com/@your-link](https://medium.com/@mayowaadejola.14/website-developer-in-lagos-nigeria-building-modern-websites-that-convert-048990fe1b7b)
+👉 https://medium.com/@mayowaadejola.14/website-developer-in-lagos-nigeria-building-modern-websites-that-convert-048990fe1b7b
 
 ---
 
