@@ -64,11 +64,11 @@ Investing in a quality website is essential for long-term growth.
 
 Choosing the right developer is one of the most important decisions for your business. Take your time, ask the right questions, and focus on value rather than just price.
 
-If you're looking for a **professional website developer in Lagos**, you can explore our services here:
+If you're looking for a [**professional website developer in Lagos**](https://websitedeveloper.tech/nigeria-website-design-development-agency/website-developer-lagos), you can explore our services here:
 👉 https://websitedeveloper.tech
 
 You can also read a quick introduction to our approach on Medium:
-👉 https://medium.com/@mayowaadejola.14/website-developer-in-lagos-nigeria-building-modern-websites-that-convert-048990fe1b7b
+👉 https://medium.com/@websitedevelopertech/website-developer-in-lagos-nigeria-building-modern-websites-that-convert-048990fe1b7b
 
 ---
 
